@@ -6,7 +6,7 @@ We focus on nurturing and developing entrepreneurship among student peers throug
 
 ---
 
-For general inquiries, please contact our [marketing team](mailto:marketing.gces@ecaconcordia.ca) or our [external team](mailto:external.gces@ecaconcordia.ca).
+For general inquiries, please contact us via [contact.gces@ecaconcordia.ca](mailto:contact.gces@ecaconcordia.ca).
 
 For sponsorship opportunities, please contact our sponsorship team at [sponsorship.gces@ecaconcordia.ca](mailto:sponsorship.gces@ecaconcordia.ca).
 
